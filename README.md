@@ -1,0 +1,1 @@
+# lojinha_do_beck_legalizado
